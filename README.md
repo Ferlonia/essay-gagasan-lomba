@@ -69,7 +69,7 @@ add the way you load skills into Claude
 
 ## Track record
 
-4 Essay written, 2 Essay's wins the province competition (Juriscripture Law Competition), and the other's wins national essay competition (Kreasi Fest 2026 #1, HKN #1)
+2 Essay's wins the province competition (Juriscripture Law Competition), and the other's wins national essay competition (Kreasi Fest 2026 #1, HKN #1)
 
 ## Author
 
